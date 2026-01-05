@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I am Vikramaditya
 👋 Hi, I'm Vikramaditya
 
 🎓 undergraduate Student  
