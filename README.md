@@ -1,7 +1,7 @@
 ## Hi there,
 👋 Hi, I'm Vikramaditya
 
-🎓 undergraduate Student  
+🎓 1st year cse student at MSRIT College 
 💻 Java Learner  
 🧑‍💻 Beginner Programmer  
 
